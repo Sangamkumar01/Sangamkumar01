@@ -18,7 +18,7 @@
 
 - 💬 Ask me about **how to begin in the world of programming.**
 
-- 📫 How to reach me **email at-sangammuz01@gmail.com**
+- 📫 How to reach me **email at - sangammuz01@gmail.com**
 
 - ⚡ Fun fact **I am afraid of my achievements as if they are very small to be shared.**
 
